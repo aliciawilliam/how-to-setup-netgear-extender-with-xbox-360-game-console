@@ -1,0 +1,1 @@
+# how-to-setup-netgear-extender-with-xbox-360-game-console
