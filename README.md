@@ -28,4 +28,4 @@ If the connection is working properly but still the problem exists, then it mean
 
 To solve WiFi connectivity issue, <a href="https://spalding-labs.com/community/field_trial/w/wiki/657.solved-connectivity-issues-to-mywifiext-net.aspx">visit here</a>.
 
-Do you Want to share your feelings with others go here <a href="https://vigyaa.io/anonymous-confessions"><b>Adult Confessions</b></a> Hope it will helps. No login required
+<b><i>Do you Want to share your feelings with others go here <a href="https://vigyaa.io/anonymous-confessions">Adult Confessions</a> Hope it will helps. No login required</i></b>
