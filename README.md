@@ -27,3 +27,5 @@ Even after the proper connectivity, the problems may still exist. In those parti
 If the connection is working properly but still the problem exists, then it means the problem lies in between the Xbox and range extender. Get in touch with the best technical experts, because a minor bug can end results with a great problem. Share with us through the comment box, we will assist you well for Netgear extender and Xbox connectivity troubleshooting.
 
 To solve WiFi connectivity issue, <a href="https://spalding-labs.com/community/field_trial/w/wiki/657.solved-connectivity-issues-to-mywifiext-net.aspx">visit here</a>.
+
+Do you Want to share your feelings with others go here <a href="https://vigyaa.io/anonymous-confessions"><b>Adult Confessions</b></a> Hope it will helps. No login required
